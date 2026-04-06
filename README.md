@@ -1,1 +1,0 @@
-# S1---Ejercicio-de-Programaci-n
